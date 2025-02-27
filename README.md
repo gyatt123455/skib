@@ -5,7 +5,7 @@ https://mexismath.web.app/loader.html?url=/schoolwork/TanukiSunset-main/TanukiSu
 https://scrolller.com
 https://shellshock.io
 https://blockaway.net
-https://watch32.sx\
+https://watch32.sx
 https://xbox.com/en-us/play
 https://play.geforcenow.com
 https://mail.google.com
