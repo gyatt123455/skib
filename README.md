@@ -1,4 +1,5 @@
 # skib
+https://www.youtube.com/watch?v=bYKX2gllrnQ&t=473
 https://replit.com/@ayunami2000/eaglercraft
 https://mrmine.com/game/?nocache=1719462916
 https://mexismath.web.app/loader.html?url=/schoolwork/TanukiSunset-main/TanukiSunset-main/index.html
