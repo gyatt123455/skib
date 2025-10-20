@@ -1,3 +1,4 @@
+https://www.youtube.com/shorts/Vg4bXsQ5Tz0
 # skib
 https://www.youtube.com/watch?v=bYKX2gllrnQ&t=473
 https://replit.com/@ayunami2000/eaglercraft
