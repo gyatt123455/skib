@@ -2,6 +2,7 @@ https://accounts.google.com/v3/signin/accountchooser?continue=https%3A%2F%2Fmail
 https://mail.google.com
 https://www.youtube.com/shorts/Vg4bXsQ5Tz0
 # skib
+https://t.me/ai
 https://www.youtube.com/watch?v=bYKX2gllrnQ&t=473
 https://replit.com/@ayunami2000/eaglercraft
 https://mrmine.com/game/?nocache=1719462916
