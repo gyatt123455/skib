@@ -29,7 +29,7 @@ https://www.youtube.com/watch?v=7V12tRrJ3Is
 	https://shadow.tech/shadowpc/offers?utm_source=Cloudbase
  https://google.com
  https://radmanplays.github.io/Eaglercraft-1.21.5/
- https://nkiri.ink
+ https://thenkiri.com
  http://ikeanangelsaidthe.com/redirect?tid=858335
  
 https://www.youtube.com/watch?v=vYoi4_zllfg
